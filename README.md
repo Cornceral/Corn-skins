@@ -1,5 +1,8 @@
 I DID NOT MAKE ANY OF THESE SKINS I JUST PLAY WITH THEM
 
+# [- RYUKAYYY wit da MONKOO](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc) 
+![](https://osu.ppy.sh/ss/16525543/bc8f)
+
 # [obtio (Rafis)](https://gerwi2.s-ul.eu/1aSbThzJ)
 ![](https://i.imgur.com/IMS7DKs.png)
 
