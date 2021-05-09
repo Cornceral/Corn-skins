@@ -1,3 +1,5 @@
+I DID NOT MAKE ANY OF THESE SKINS I JUST PLAY WITH THEM
+
 # [obtio (Rafis)](https://gerwi2.s-ul.eu/1aSbThzJ)
 ![](https://i.imgur.com/IMS7DKs.png)
 
