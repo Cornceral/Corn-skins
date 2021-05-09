@@ -1,27 +1,5 @@
-# Corn-skins
-I DIDNT MAKE THESE SKINS
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# DTHD (https://gerwi2.s-ul.eu/1aSbThzJ)
+# [obtio (Rafis)](https://gerwi2.s-ul.eu/1aSbThzJ)
 ![](https://i.imgur.com/IMS7DKs.png)
 
-#(NOMOD)[vv_idke_trail](https://drive.google.com/file/d/12xHpKcdN5HNnAQnjL8JN507ZyQEEFCn-/view)
-![Image](https://skins.osuck.net/uploads/posts/2019-07/1561977645_screenshot5556.jpg)
+# [-          # Enumi v1.1](https://drive.google.com/file/d/1LwpwPTb6Crfd3y7JiXBoL4lBjDi7qlDP/view?usp=sharing)
+![Image](https://i.imgur.com/RdoAsRR.jpg)
